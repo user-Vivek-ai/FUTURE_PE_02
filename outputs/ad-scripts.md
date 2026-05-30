@@ -1,35 +1,33 @@
-**Script 1 – Second Chance**
+**Script 1 – Weight Loss & Fitness Transformation**
 
-"I never thought I would get a second chance to complete my degree. After discontinuing my studies due to personal circumstances, I assumed my education journey had come to an end.
+"A few months ago, I realized I wasn't prioritizing my health and fitness. My routine lacked consistency, and I struggled to stay motivated.
 
-That's when I came across Edufast Education Consultancy.
+That's when I joined Sai Balaji Gym.
 
-They helped me understand the options available and guided me through every step of the process.
+The experienced trainers provided the guidance I needed, and the supportive environment helped me stay committed to my goals.
 
-Today, I'm working toward completing my graduation with confidence.
+Over time, I began seeing noticeable improvements in my fitness, energy levels, and overall well-being.
 
-If you've had to pause your studies, don't assume it's too late. Contact Edufast Education Consultancy and find out how you can continue your education journey."
+If you're looking for the right place to begin your fitness journey, I highly recommend visiting Sai Balaji Gym and exploring what they have to offer."
 
-**Script 2 – Career Growth**
+**Script 2 – Strength & Muscle Building**
 
-"For a long time, my incomplete degree held me back from pursuing better career opportunities. I wanted to continue my education, but I wasn't sure where to start.
+"I wanted to build strength and improve my physique, but I wasn't sure how to train effectively on my own.
 
-Then I found Edufast Education Consultancy.
+After joining Sai Balaji Gym, I gained access to quality equipment, structured workout plans, and professional guidance from experienced trainers.
 
-Their team provided clear guidance, answered all my questions, and helped me explore the right academic pathway.
+With the right support and consistency, I started seeing real progress in my strength, physique, and confidence.
 
-Now, I'm finally taking steps toward completing my graduation and building a stronger future.
+If you're serious about achieving your fitness goals and building a stronger version of yourself, Sai Balaji Gym is a great place to start."
 
-If you're in a similar situation, don't let an unfinished degree stop you. Reach out to Edufast Education Consultancy and explore your options today."
+**Script 3 – Student Fitness & Lifestyle**
 
-**Script 3 – Flexible Path Forward**
+"As a student, I spent most of my day attending classes, studying, and sitting for long hours. Over time, I realized I needed a healthier and more active lifestyle.
 
-"Life doesn't always go according to plan. I had to leave college midway, and for years, I thought completing my degree wasn't possible anymore.
+Joining Sai Balaji Gym was one of the best decisions I made for my health.
 
-Thankfully, I discovered Edufast Education Consultancy.
+The gym provided a motivating environment that helped me stay active, manage stress, and maintain better energy levels throughout the day.
 
-They helped me understand the available opportunities and guided me toward a solution that fit my situation.
+Today, fitness has become an important part of my routine.
 
-Today, I'm back on track and closer than ever to achieving my graduation goals.
-
-If you've discontinued your studies for any reason, don't lose hope. Contact Edufast Education Consultancy and take the next step toward your future."
+If you're a student looking to improve your health, fitness, and overall lifestyle, consider starting your journey with Sai Balaji Gym."
